@@ -4,7 +4,7 @@ Perkenalkan nama saya **Zirlyfera Zakiya Maulidia**.
 
 - 🔭 I’m currently a student in Universitas Pendidikan Indonesia.
 - 🌱 I’m currently learning Cloud Computing, UI/UX Design, and Web Development.
-- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/zirlyferazm/)
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/zirlyferazm/), [dribbble](https://dribbble.com/zirlyzkiyaa)
 - 😄 Pronouns: She/Her
 
 <p align="left">
